@@ -1,0 +1,6 @@
+- With_Papers
+- With_Papers is here to make the dream of dual nationality come true.
+- With_Papers is a bespoke consultancy that specializes in assisting individuals to obtain dual Italian citizenship or Italian residency. We are dual citizenship lawyers in Italy and the US and offer a comprehensive consultation to assist you in identifying your specific needs. With_Papers is here to help make the dream of dual nationality or Italian residency, and the dream of freedom, that Plan B, become a reality.
+- https://with-papers.com/
+- (718) 866-3253
+- The Silk Building, 14 East 4th Street, Suite 501, New York, NY 1001
